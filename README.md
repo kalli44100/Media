@@ -32,7 +32,7 @@ I used to also enjoy participating in Remix contests and even won this one [Rico
 
 
 ### Sound and Audio in Film
-Please refer to my old [Film Industry CV](https://github.com/kalli44100/AboutMe/blob/main/CV%20Karl%20Laeufer%202017.pdf) to get an idea of the diverse nature of projects I've worked on over the years. I even did a shoot with Ollie Murs once:)
+Please refer to my old [Film Industry CV](https://github.com/kalli44100/Media/blob/main/CV%20Karl%20Laeufer%202017.pdf) to get an idea of the diverse nature of projects I've worked on over the years. I even did a shoot with Ollie Murs once:)
 
 ![OllieMurs](https://github.com/user-attachments/assets/4f7e0b6a-bcf6-4120-9e00-a2c6e1dd4567)
 
