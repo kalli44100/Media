@@ -36,8 +36,4 @@ Please refer to my old [Film Industry CV](https://github.com/kalli44100/AboutMe/
 
 ![OllieMurs](https://github.com/user-attachments/assets/4f7e0b6a-bcf6-4120-9e00-a2c6e1dd4567)
 
--> Mosaic of audio job pictures, companies mosaic?
-
-### card game?
-->created card game with my kids, add pictures
 
