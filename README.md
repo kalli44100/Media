@@ -36,4 +36,6 @@ Please refer to my old [Film Industry CV](https://github.com/kalli44100/Media/bl
 
 ![OllieMurs](https://github.com/user-attachments/assets/4f7e0b6a-bcf6-4120-9e00-a2c6e1dd4567)
 
+Companies I've worked for:
+![Logo Collage 2](https://github.com/user-attachments/assets/99ea9f9a-c580-4cd6-bab3-87bef3599372)
 
